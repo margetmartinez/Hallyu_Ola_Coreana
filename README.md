@@ -35,7 +35,7 @@ Según el artículo *"De Permission to Dance a la Asamblea General de las Nacion
 
 Como se mencionó anteriormente, vemos que el *K-pop* no es un simple género musical, sino que ha conseguido convertirse en una **estrategia política**. Lo que ha llevado a pensar que es un síntoma de *soft power*. Y es que este no representa directamente el poder del país por no haber nacido del Estado, pero se ve "beneficiado de la política pública coreana y de una impecable planificación económica del país". 
 
-![](https://pbs.twimg.com/media/E_u5S1LX0Ac7Cz9?format=jpg&name=large)  
+![](https://pbs.twimg.com/media/E_u5S1LX0Ac7Cz9?format=jpg&name=large)<img src="image.png" width="200" height="100">  
 **Figura 3.** Grupo masculino BTS en la Asamblea General de la ONU.
 
 Se dice que esto corresponde a un ejercicio de **poder**, donde se obtienen resultados favorecedores o la influencia que desea tener, debido a que los otros "admiran sus valores, prosperidad y apertura". Lo que se puede ejemplificar con la visita del grupo BTS a la asamblea general de de las Naciones Unidas, con el fin de representar y apoyar los objetivos de desarrollo sostenible. Blackpink como embajadoras y en afinidad con la [COP](https://www.uchile.cl/noticias/156507/que-es-la-cop), para formular ambiciones respecto al cambio climático. O el grupo femenino *Red Velvet* que fue enviado por el gobierno sur coreano a Corea del Norte en el [marco de fortalecimiento de las relaciones entre ambos países para desnuclearizar ambas naciones.](https://www.noraemagazine.com/2021/03/09/red-velvet-corea-del-norte/#:~:text=En%202018%2C%20Red%20Velvet%20tuvo,Norte%20y%20Corea%20del%20Sur.)
