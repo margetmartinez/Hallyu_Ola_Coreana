@@ -19,7 +19,7 @@ En las series se pueden observar aspectos culturales como:
 - Incluso su gran interés por la belleza física, tocando temas sobre cuidado de la piel con su [K-Beauty](https://www.sportfem.es/2019/07/23/k-beauty-el-auge-de-la-cosmetica-coreana/) 
 - Su gran inclinación hacia las cirugías plásticas  
 
-Es precisamente a través de esto último que el Ministerio de Turismo busca promocionar la [K-medicine](https://asianortheast.com/seul-la-capital-mundial-del-turismo-medico/). Para que mediante al turismo médico se posicione a Corea del Sur como la nueva meca de la cirugía plástica.
+Es precisamente a través de esto último que el Ministerio de Turismo busca promocionar la [K-medicine](https://asianortheast.com/seul-la-capital-mundial-del-turismo-medico/). Para que mediante al turismo médico se posicione a Corea del Sur como **la nueva meca de la cirugía plástica**.
 
 ![](https://github.com/margetmartinez/tarea01_Programacion/blob/main/Marcas_Coreadelsur.png)  
 **Figura 2:** Marcas tecnológicas de Corea del Sur mejor posicionadas en el mercado. 
@@ -33,12 +33,12 @@ Según el artículo *De Permission to Dance a la Asamblea General de las Nacione
 
 ### Kpop y soft power  
 
-Como se mencionó anteriormente, vemos que el *K-pop* no es un simple género musical, sino que ha conseguido convertirse en una estrategia política. Lo que ha llevado a pensar que es un síntoma de *soft power*. Y es que este no representa directamente el poder del país por no haber nacido del Estado, pero se ve "beneficiado de la política pública coreana y de una impecable planificación económica del país". 
+Como se mencionó anteriormente, vemos que el *K-pop* no es un simple género musical, sino que ha conseguido convertirse en una **estrategia política**. Lo que ha llevado a pensar que es un síntoma de *soft power*. Y es que este no representa directamente el poder del país por no haber nacido del Estado, pero se ve "beneficiado de la política pública coreana y de una impecable planificación económica del país". 
 
 ![](https://pbs.twimg.com/media/E_u5S1LX0Ac7Cz9?format=jpg&name=large)  
 **Figura 3.** Grupo masculino BTS en la Asamblea General de la ONU.
 
-Se dice que esto corresponde a un ejercicio de poder, donde se obtienen resultados favorecedores o la influencia que desea tener, debido a que los otros "admiran sus valores, prosperidad y apertura". Lo que se puede ejemplificar con la visita del grupo BTS a la asamblea general de de las Naciones Unidas, con el fin de representar y apoyar los objetivos de desarrollo sostenible. Blackpink como embajadoras y en afinidad con la [COP](https://www.uchile.cl/noticias/156507/que-es-la-cop), para formular ambiciones respecto al cambio climático. O el grupo femenino *Red Velvet* que fue enviado por el gobierno sur coreano a Corea del Norte en el [marco de fortalecimiento de las relaciones entre ambos países para desnuclearizar ambas naciones.](https://www.noraemagazine.com/2021/03/09/red-velvet-corea-del-norte/#:~:text=En%202018%2C%20Red%20Velvet%20tuvo,Norte%20y%20Corea%20del%20Sur.)
+Se dice que esto corresponde a un ejercicio de **poder**, donde se obtienen resultados favorecedores o la influencia que desea tener, debido a que los otros "admiran sus valores, prosperidad y apertura". Lo que se puede ejemplificar con la visita del grupo BTS a la asamblea general de de las Naciones Unidas, con el fin de representar y apoyar los objetivos de desarrollo sostenible. Blackpink como embajadoras y en afinidad con la [COP](https://www.uchile.cl/noticias/156507/que-es-la-cop), para formular ambiciones respecto al cambio climático. O el grupo femenino *Red Velvet* que fue enviado por el gobierno sur coreano a Corea del Norte en el [marco de fortalecimiento de las relaciones entre ambos países para desnuclearizar ambas naciones.](https://www.noraemagazine.com/2021/03/09/red-velvet-corea-del-norte/#:~:text=En%202018%2C%20Red%20Velvet%20tuvo,Norte%20y%20Corea%20del%20Sur.)
 
 ![](https://larepublica.pe/resizer/Zosey3-DiPKJN22fBZb9_Fd0-eE=/538x0/top/larepublica.pe/resizer/1LNjsAy6b8jq0imCiY2hrDi1qk4=/538x0/top/smart/cloudfront-us-east-1.images.arcpublishing.com/gruporepublica/FFAXBX3RBVDFVHPRO2HWTHOWLY.jpg)  
 **Figura 4.** Grupo femenino Blackpink en la COP26.
