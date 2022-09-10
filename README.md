@@ -19,5 +19,8 @@ En las series se pueden observar aspectos culturales como:
 - Incluso su gran interés por la belleza física, tocando temas sobre cuidado de la piel con su [K-Beauty](https://www.sportfem.es/2019/07/23/k-beauty-el-auge-de-la-cosmetica-coreana/) 
 - Su gran inclinación hacia las cirugías plásticas 
 
+![](https://github.com/margetmartinez/tarea01_Programacion/blob/main/Marcas_Coreadelsur.png)  
+**Figura 2:** Marcas tecnológicas de Corea del Sur mejor posicionadas en el mercado.  
+
 Es algo similar a lo que podemos observar aquí en Costa Rica con la imagen de país verde que se le vende al mundo. Y es precisamente para realzar el atractivo del país para aumentar la inversión y el turismo.  
 
