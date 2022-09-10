@@ -29,7 +29,7 @@ El pop coreano no es sólo un género musical como muchos otros. Su difusión ha
 
 Pero el k-pop no sólo son la parte estética de Corea del Sur. Gracias a este se ha logrado posicionar al país sur coreano casi de manera imperceptible en diversos países del mundo. Y es que precisamente existen diversas empresas encargadas de entrenar a miles de jóvenes para convertirlos en artistas completos; esto con el fin de introducirlos en el mercado. Debido a esto es que se habla del k-pop como una estrategia de [*soft power*](https://es.wikipedia.org/wiki/Poder_blando) por parte del gobierno de dicho país.
 
-Según el artículo *De Permission to Dance a la Asamblea General de las Naciones Unidas: Corea del Sur y su estrategia más valiosa de soft power*, el gobierno coreano destinó millones de dólares para la promoción de la música debido al éxito internacional que estaba teniendo. Esto resultó tan positivo, que las aportaciones de cifras al PIB aumentó considerablemente. Un ejemplo de ello fue la canción *Dynamite* de BTS, en 2020 aportó más de 1400 millones a la economía de Corea del Sur. 
+Según el artículo *"De Permission to Dance a la Asamblea General de las Naciones Unidas: Corea del Sur y su estrategia más valiosa de soft power"*, el gobierno coreano destinó millones de dólares para la promoción de la música debido al éxito internacional que estaba teniendo. Esto resultó tan positivo, que las aportaciones de cifras al PIB aumentó considerablemente. Un ejemplo de ello fue la canción *Dynamite* de BTS, en 2020 aportó más de 1400 millones a la economía de Corea del Sur. 
 
 ### Kpop y soft power  
 
