@@ -46,5 +46,5 @@ Se dice que esto corresponde a un ejercicio de **poder**, donde se obtienen resu
 Con esto vemos que los artistas coreanos han llegado a tener papeles políticos, apoyados por el gobierno de su país con el fin de promocionar incluso intereses de la comunidad internacional (cambio climático, desnuclearización, vacunación contra el COVID-19). No cabe duda que han contribuido a posicionar a Corea del Sur como un atractivo destino de trabajo, estudio, inversión y cultura.
 
 ### Referencias
-- [Vega, T. (2021). Análisis semanal 421: De Permission to Dance a la Asamblea General de las Naciones Unidas: Corea del Sur y su estrategia más valiosa de soft power. *Observatorio de la Política Internacional*. Universidad de Costa Rica.](https://opi.ucr.ac.cr/node/1826) 
-- [García, L. (2020). En Ciencia Joven: Hallyu, el fenómeno cultural surcoreano más allá del k-pop. *CienciaUNAM*. Universidad Nacional Autónoma de México.](https://ciencia.unam.mx/leer/953/en-ciencia-joven-hallyu-el-fenomeno-cultural-coreano-mas-alla-del-k-pop)
+- Vega, T. (2021). Análisis semanal 421: De Permission to Dance a la Asamblea General de las Naciones Unidas: Corea del Sur y su estrategia más valiosa de soft power. *Observatorio de la Política Internacional*. Universidad de Costa Rica. <https://opi.ucr.ac.cr/node/1826>
+- García, L. (2020). En Ciencia Joven: Hallyu, el fenómeno cultural surcoreano más allá del k-pop. *CienciaUNAM*. Universidad Nacional Autónoma de México.<https://ciencia.unam.mx/leer/953/en-ciencia-joven-hallyu-el-fenomeno-cultural-coreano-mas-alla-del-k-pop>
