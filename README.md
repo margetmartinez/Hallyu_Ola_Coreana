@@ -5,7 +5,7 @@
 Viene siendo un fenómeno cultural que surge en los últimos años, enfocado en la difusión que ha tenido el entretenimiento coreano a lo largo del mundo. El término surgió gracias al periódico chino *The People Daily*, que la utilizó para describir el furor de los jóvenes de ese país, por productos de entretenimiento coreano. Estos van desde la música ([Kpop](https://es.wikipedia.org/wiki/K-pop)), hasta las telenovelas coreanas llamadas "[kdramas](https://en.wikipedia.org/wiki/Korean_drama)".  
 
 ![byb](https://i2.wp.com/erizos.mx/wp-content/uploads/2021/01/blackpink-parasite-bts-orgullo-corea-del-sur.jpg?w=1280&ssl=1)
-<p style="text-align:center">**Figura 1:** Grupos más famosos de Kpop a nivel mundial. A la izquierda [Blackpink](https://es.wikipedia.org/wiki/Blackpink) como grupo femenino y a la derecha [BTS](https://es.wikipedia.org/wiki/BTS) como grupo masculino de mayor influencia mundial.<p/>
+**Figura 1:** Grupos más famosos de Kpop a nivel mundial. A la izquierda [Blackpink](https://es.wikipedia.org/wiki/Blackpink) como grupo femenino y a la derecha [BTS](https://es.wikipedia.org/wiki/BTS) como grupo masculino de mayor influencia mundial.
 
 ## La cultura como estrategia económica  
 
